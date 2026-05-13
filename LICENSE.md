@@ -1,4 +1,4 @@
-# 
+# exclusive blur sniper bot | private-RPC-nodes + wash-trading-execution is the best blur sniper bot, featuring private-RPC-nodes and wash-trading-execution. Fast, smart, and
 
 
 
